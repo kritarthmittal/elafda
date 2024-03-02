@@ -4,4 +4,4 @@ Tech founders have anyway got their products to speak for their proficiency in d
 
 Here's me walking the talk with - https://soshals.app/
 
-What about you, preacher?
+What about you, preacher? What have you built and shipped?
